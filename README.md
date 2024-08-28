@@ -41,15 +41,11 @@ MLOps/DevOps/Data Scientist Tools:
 👩‍💻 PhD Candidate in Computational Science
 
 🧠 Msc in Computational Science with distinction
-🧠 Msc in Applied Mathematics with distinction
+👯‍♀️ Msc in Applied Mathematics with distinction
 
-👯‍♀️ Bcs Mathematics with distinction
-
-🤔 I'm looking for help with...
+📫 Bcs Mathematics with distinction
 
 💬 More details loading....
-
-📫 ...
 
 😄 He/His/Him
 
